@@ -19,7 +19,7 @@
 
 ## **꒷꒦꒷‧˚₊‧꒦꒷꒦ ꒷꒦‧˚.⁺꒷꒦꒷‧˚**
 
-### Interact If...
+### INTERACT IF...
 
 
 ♡you enjoy Anime! (Such as but not limited to: MHA, BSD, BNA, Fruits Basket, Inuyasha, WHA, ETC)
