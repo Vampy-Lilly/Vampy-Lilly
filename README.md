@@ -1,4 +1,5 @@
 # ⋆˚꩜｡ Lilly ⋆⭒˚.⋆
+# **I am an adult, so please IWC if you are >17 years old**
 
 ## **꒷꒦꒷‧˚₊‧꒦꒷꒦ ꒷꒦‧˚.⁺꒷꒦꒷‧˚**
 
@@ -15,7 +16,6 @@
 
 ♡Touch Comforted! C + H friendly!
 
-**I am an adult, so please IWC if you are >17 years old**
 
 ## **꒷꒦꒷‧˚₊‧꒦꒷꒦ ꒷꒦‧˚.⁺꒷꒦꒷‧˚**
 
